@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> في عيونك أرى أسرار الليل
+> وسكوتك يحرق قلبي بالويل
+> تعالي هنا في حضني نميل
+> كل نبضة في صدري لكِ دليل
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
